@@ -1,4 +1,4 @@
-👋 Hi, I am Marcello (Marc).
+👋 Hi! I am Marcello but you can call me Marc.
 
 ## Recommended books
 
